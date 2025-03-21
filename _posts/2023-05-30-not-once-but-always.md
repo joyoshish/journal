@@ -13,6 +13,12 @@ In the beginning, it seems like a force beyond control. It sweeps in with intens
 Some will call this the moment when things fade. They will mourn the loss of excitement, mistaking it for the loss of something essential. They will chase that initial spark elsewhere, believing that the experience should always be effortless, intoxicating, consuming. But permanence does not exist in thrill alone. Just as the river does not resist the changing seasons but adapts, flows, deepens—so too does the heart when it chooses to stay. The true measure of commitment is not in the ease of its beginning but in the strength of its continuation. To stay is to choose—to choose patience when tempers flare, to choose kindness when words could wound, to choose presence when absence might be easier.
 
 There will be days when warmth feels distant, when frustration overshadows tenderness, when exhaustion makes effort seem like a burden. There will be moments of doubt, when the heart questions what the mind once knew so certainly. And yet, it is in these moments that resilience is tested, and in these moments that the decision must be made anew. Not because it is always easy, but because it is always worth it. After all, is it not the nature of all things meaningful to demand endurance? The grandest mountains are not shaped in a day, nor are the most profound bonds.
+
+
+<figure style="text-align: center;">
+  <img src="https://upload.wikimedia.org/wikipedia/commons/4/40/The_Kiss_-_Gustav_Klimt_-_Google_Cultural_Institute.jpg" alt="The Third-Class Carriage (New York)" style="max-width: 100%; height: auto;">
+  <figcaption><em>The Kiss – Gustav Klimt (1907–1908)</em></figcaption>
+</figure>
  
 
 It is not an escape from life’s difficulties; it is the place where they are shared. It is not a fair-weather presence, but a refuge in the storm. It is not about grand gestures or poetic confessions, but about the quiet, unseen acts of devotion—the small sacrifices, the daily affirmations, the unwavering presence. It is in the making of coffee before the other wakes, in the remembering of details others would overlook, in the reaching out even when hurt lingers. It is found in the holding on, in the choosing again and again to walk this path together, even when it winds through shadows. It is the embodiment of an unspoken philosophy—the belief that the truest form of care is not found in mere words but in the spaces between them.
@@ -28,7 +34,3 @@ In a world that values convenience, it is easy to discard what no longer feels e
 At its core, it is not found in fleeting moments of passion but in the enduring decision to care. It is in the work, in the willingness to mend what frays, in the patience to wait for storms to pass. It is in the trust that even on the hardest days, there is still something worth holding on to. It is not just a feeling—it is a choice. A choice made not once, but a thousand times over a lifetime. A quiet philosophy, a whisper in the wind, a decision made in the silence of the soul.
 
 
-<figure style="text-align: center;">
-  <img src="https://upload.wikimedia.org/wikipedia/commons/4/40/The_Kiss_-_Gustav_Klimt_-_Google_Cultural_Institute.jpg" alt="The Third-Class Carriage (New York)" style="max-width: 100%; height: auto;">
-  <figcaption><em>The Kiss – Gustav Klimt (1907–1908)</em></figcaption>
-</figure>
