@@ -101,7 +101,9 @@ And maybe the hum you feel is not emptiness at all — but the soul, slowly tuni
 
 
 
-**Postscript**
+<div style="height: 4px;"></div>
+<p style="text-align: center;">⬩⬩⬩</p>
+<div style="height: 4px;"></div>
 
 If you’re here — in this place — you’re not alone. Many of us have been here, are here, will be here again. There’s no productivity metric for spiritual fatigue. No app for restlessness of the soul.
 
