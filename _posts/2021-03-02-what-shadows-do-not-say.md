@@ -35,8 +35,8 @@ The hallway stretched before her, shadowed but familiar. The light switch was st
 > मौत का एक दिन मुअय्यन है, नींद क्यों रात भर नहीं आती?"**  
 <!-- > **"کویٔ امید بر نہیں آتی، کویٔ صورت نظر نہیں آتی،  
 > موت کا ایک دن معین ہے، نیند کیوں رات بھر نہیں آتی؟"**  --> 
-> **"No hope seems to arise, no face appears before me,  
-> Death is destined for a single day, why then does sleep not come all night?"**  
+<!-- > **"No hope seems to arise, no face appears before me,  
+> Death is destined for a single day, why then does sleep not come all night?"**  --> 
 > —Mirza Ghalib  
 
   
