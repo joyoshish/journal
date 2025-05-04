@@ -1,0 +1,49 @@
+---
+title: "Like Rain on the Platform"
+author: 
+category: Literature
+layout: post
+---
+
+
+I’ll be honest with you. I don’t know what’s wrong with me. Maybe nothing. Maybe everything. Maybe this is just what it means to carry someone like a ghost stitched to your skin. Maybe this is how some loves live—like background radiation: invisible, persistent, altering you without ever asking permission. Maybe sadness is the rent I pay for having known her at all. I’ve tried to make peace with it. With her absence. With this hollow echo that used to be a heart. But peace isn’t quiet. Not for me. Peace is a war that never ends—every day I wake up hoping the battle is over, and every night I fall asleep in the arms of grief again, like a fool who can’t quit the lover that keeps wrecking him.
+
+I get sad over her. Of course I do. But it’s not just sadness. It’s this raw, throbbing thing that moves through my bones like a second pulse. It’s anger and longing and madness and shame. It’s the way a song can break me for no reason at all, or how seeing a couple laughing on the street makes me clench my fists until my nails mark crescent moons into my palms. And it’s the silence—the memory of our silences. The soft kind. The kind only two introverts understand. We didn’t need noise. We didn’t fill the air with meaningless chatter. Our world was built in the quiet—tiny glances, a shared smile, hands brushing by accident and then staying just a second too long. Little human touches that made up our entire universe. We talked too little, maybe, but in that little, everything was contained. Every heartbeat. Every unsaid thing.
+
+There’s this image I can’t shake. A train platform. Rain falling in quiet. Me, standing there like a ghost watching her disappear through the fog—except there’s no train. She just dissolves into the air. And the rain keeps falling, like the sky knows something I don’t. That’s what this grief feels like. Like rain on the platform. Constant. Cold. Uninvited. But somehow, weirdly sacred. Like the last place we were both real. Like the quiet space where we used to exist without needing words.
+
+Sometimes I wonder if it ever really happened—us. If I didn’t just imagine the entire thing out of loneliness and a desperate craving for meaning. But no. I remember how her eyes looked when she was tired but still smiled. You don’t fabricate moments like that. But the mind—oh, the mind—it’s a cruel little artist. It adds brushstrokes where there were none. It embellishes. It folds time into itself until everything feels like yesterday and also like another life.
+
+And then comes the guilt. The terrible, acidic guilt. Because maybe I was the one who wasn’t enough. Maybe I was too much. Maybe I said the wrong things. Maybe I didn’t fight hard enough. Or maybe I fought too much. Maybe I just broke in all the ways she couldn’t fix. People don’t leave perfection. People leave storms. And I was a hurricane in a body trying to learn how to be a garden.
+
+I think about her when I shouldn’t. In grocery aisles. In elevators. When I’m brushing my teeth. When I’m lying to friends and saying I’m fine. I see her face in strangers and my stomach drops, like my body’s trying to outrun the memory. I look for her in all the wrong places—old texts, old photos, songs.
+
+<p style="text-align: center; font-size: 2rem;">&mdash; ✦ &mdash;</p>
+
+
+Grief, I’ve come to learn, is not linear. It’s a spiral staircase. Some days you feel like you’re rising above it, breathing clean air. And then something—an accidental scent, a slip of sunlight through your window, a laugh that sounds too much like hers—pulls you back down, and suddenly you’re drowning in the same tears you thought you’d dried months ago. But the past isn’t a museum. You can’t just visit it when you feel lonely. The past bites. It claws. It begs you to stay, then kicks you out before you can remember what happiness tasted like. And still, I go back. Still, I sit in the ruins of us like they’re sacred. Because maybe they are. Because maybe that’s the only place where we still exist—as a half-finished prayer.
+
+She’s everywhere and nowhere. That’s the curse. It’s not that she left. It’s that she lingers. Like smoke after a fire. Like perfume on a pillow. Like a dream you almost remember. I talk to her when no one’s around. I whisper things I never had the courage to say when she was with me. Back then, the words stayed stuck behind my teeth. We were both that way—two people constantly waiting for the other to speak first, to admit a feeling, to ask the big questions. But maybe we didn’t need words. Maybe our love was made of stillness. Of presence. Of sitting next to each other and letting the silence stretch—not because we had nothing to say, but because saying it would’ve broken the spell.
+
+Some nights, I go full madman. I write letters I’ll never send. I pace the room muttering her name like it’s a spell. I pick fights with myself in the mirror, hurling blame and grief and half-truths until I’m too exhausted to stand. And then, like clockwork, I sit on the floor and cry like a child. Not because I want her back—no, that would be too clean. I cry because I miss the person I was when she loved me. I cry because I don't know who the fuck I am without that reflection. What do you do when your sense of self is stitched together by someone who is no longer here? When the best version of you existed only in the eyes of someone who’s stopped looking? There are no self-help books for that kind of emptiness. Only long nights. Only rain.
+
+It’s embarrassing, really. This level of attachment. Of devotion. Of devastation. People tell you to move on. People hand you clichés like painkillers: "Time heals," they say. "You’ll find someone better." Fuck that. Time doesn’t heal. Time hides the wounds under scar tissue until they start to itch again at 3 a.m. And I don’t want someone better. I wanted her. In all her mess and magic and maddening humanity.
+
+But love isn’t a democracy. You don’t get to vote on someone else’s leaving. And fate? Fate is a bastard. A cruel little child pulling wings off butterflies, just to see what happens. If there’s a god, he’s laughing. Sometimes I imagine alternative timelines. Like a crazy person. One where we said the right things. One where I held her hand just a second longer. One where we made it. I know it’s delusional. But grief turns reason into a puzzle missing all the corner pieces. And sometimes the only thing that keeps me breathing is the fantasy that somewhere, somehow, she still thinks of me too.
+
+And so I get sad. Over her. Over us. Over everything we were and everything we’ll never be. And maybe that sadness is the only way I get to be close to her now. Through grief, I trace her shape in the dark. Through ache, I hear her laughter. Through sorrow, I feel her fingers lace with mine one last time. Maybe I’m broken. Maybe I’m unlovable. Maybe I’m addicted to the pain because it’s the only thing left that still feels like love. But if this is madness, let me have it. If this is weakness, let me drown in it. Because the truth is—I’d rather be haunted by her than healed without her.
+
+And so here I am, again. Back on that platform. The rain hasn’t stopped. It probably never will. But I stay. I stay because it’s the closest I can get to her. Because every drop feels like her memory touching my skin. Because even in her absence, this is where I still love her—in the silence, in the waiting, in the rain.
+
+There’s a kind of ritual to all this now. Like my body remembers the choreography of missing her. I rehearse whole dialogues with her—versions where I’m funnier, wiser, braver. Where I finally say the thing that would’ve made her stay. But life isn’t theatre. You don’t get rehearsals. You only get silence after a slammed door.
+
+Sometimes I think about reaching out. Just a message. Just to ask how she’s been. But I don’t. Not because I don’t want to. God, I want to. But because I know what I’d be doing: digging my own grave a little deeper. Hoping her voice might become a rope I could climb out with, when really, it’d only pull me further under. Missing her is a sickness. And I’m tired of relapsing.
+
+Still, I collect her like sea glass. Tiny shards of her in everyday moments. She’s there and not there. Like static. Like a frequency I can’t tune out. And I’ve come to live with it. With this buzzing, aching frequency of her. They say love is a shelter. But some loves are storms. And even months later, I’m still pulling twigs from my hair, still wringing out my soaked clothes, still wondering if any part of me was ever dry again.
+
+Friends don’t get it. They offer condolences like weather reports. “Storm’s passed now, huh?” And I nod. Because what else can I say? That the rain is inside me now? That I walk with it? That I’ve grown to like the sound of it?
+
+There’s a certain beauty in sadness, if you squint. A kind of sacredness in carrying love after it’s gone. In lighting candles for someone who will never see them. In holding space for a ghost you named home. I don’t expect anyone to understand it. I barely do. But I know this: forgetting her would be a second death. And I’m not ready to bury her twice.
+
+So I keep her close. In raindrops. In silence. In memories soft as mist and sharp as glass. I let the sadness have me. I let it build shrines in my chest. And every once in a while, when the world is quiet and the night is heavy, I swear I feel her beside me. Not like a haunting—but like a breath. Like warmth. Like the part of me that still believes we were real. And maybe that’s what love becomes, after the wreckage. A quiet ache you make a life around. A rain you stop trying to outrun. A platform you never quite leave. Would you believe me if I said the rain feels gentler now? Because some days, it really does.
+
